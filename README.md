@@ -1,5 +1,5 @@
 # 💫 About Me:
-Student At Bakrie University | IT Student | Network Administrator
+Student | IT Student | Network Administrator
 
 
 ## 🌐 Socials:
